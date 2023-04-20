@@ -1,5 +1,5 @@
 - 👋 Hi
 - 💞️ I miss you
-- 📫 you know best how to reach me
+- 📫 you knew the best way how to reach me
 
 
